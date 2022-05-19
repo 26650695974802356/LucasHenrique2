@@ -1,4 +1,4 @@
-#Olá! Eu sou o Lucas Henrique.
+#Olá! Eu sou o Lucas Henrique Delfino.
 
 🍕 Hoje eu trabalho de pizzaiolo.
 
